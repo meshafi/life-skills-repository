@@ -8,7 +8,7 @@ Learn anything such that you can explain it and able to write it clearly in simp
 In this video, what was the most interesting story or idea for you?
 
 ### Answer 2
-some people might take time to understand new things than others but that doesn't mean they are slow. What really matters is the experience they have gain. How deeply they understand the topic and constantly test thereself with the knowledge they have gain.
+Some people might take time to understand new things than others but that doesn't mean they are slow. What really matters is the experience they have gain. How deeply they understand the topic and constantly test thereself with the knowledge they have gain that was the most important idea for me.
 
 ### Question 3
 What are active and diffused modes of thinking?
