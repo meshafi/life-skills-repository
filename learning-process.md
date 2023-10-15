@@ -20,7 +20,6 @@ Diffused mode- When we relax our self and do the stuff that don't need attention
 
 
 
-## 4. Learn Anything in 20 hours
 
 ### Question 4
 According to the video, what are the steps to take when approaching a new topic? Only mention the points.
