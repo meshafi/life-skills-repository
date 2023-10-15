@@ -1,14 +1,8 @@
-# Heading
-
 # Learning Process
-
 ### Question 1
 What is the Feynman Technique? Explain in 1 line.
 ### Answer 1
 Learn anything such that you can explain it and able to write it clearly in simple language.
-
-
-## 3. Learning How to Learn TED talk by Barbara Oakley
 
 ### Question 2
 In this video, what was the most interesting story or idea for you?

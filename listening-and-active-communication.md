@@ -1,4 +1,4 @@
-## 1.Active Listening
+# Listening and active communication
 ### Question 1
 what are the steps/strategies to do Active Listening?
 ### Answer 1
@@ -9,13 +9,13 @@ what are the steps/strategies to do Active Listening?
 * If you wanna say something wait for them to finish.
 * Note down things if you are in meeting or attending class.
 
-## 2. Reflective Listening
+
 ### Question 2
 According to Fisher's model, what are the key points of Reflective Listening? (Write in your own words, use simple English)
 ### Answer 2
 
 
-## 3. Reflection
+
 ### Question 3
 what are the obstacles in your listening process?
 ### Answer 3
