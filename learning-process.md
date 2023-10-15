@@ -14,9 +14,9 @@ some people might take time to understand new things than others but that doesn'
 What are active and diffused modes of thinking?
 
 ### Answer 3
-Active mode- When we place close attention to anything or try to feed information to our brain that is Active mode.
+**Active mode**- When we place close attention to anything or try to feed information to our brain that is Active mode.
 
-Diffused mode- When we relax our self and do the stuff that don't need attention like walking, sleeping and eating.
+**Diffused mode**- When we relax our self and do the stuff that don't need attention like walking, sleeping and eating.
 
 
 

@@ -13,6 +13,15 @@ what are the steps/strategies to do Active Listening?
 ### Question 2
 According to Fisher's model, what are the key points of Reflective Listening? (Write in your own words, use simple English)
 ### Answer 2
+* __Repeat Back__: You should repeat what the other person said in your own words. This shows them that you're really listening and trying to understand.
+
+* __Ask Questions__: You can ask questions to make sure you get it right and to learn more about what they're feeling or thinking.
+
+* __Don't Judge__: It's important not to judge or criticize what they're saying. Just listen and understand without jumping to conclusions.
+
+* __Show Empathy__: Try to show that you understand how they feel and that you care about their feelings. This can help them feel heard and supported.
+
+* __Stay Calm__ It's also essential to remain calm and patient while they're talking, even if you disagree. Reflective listening is about understanding, not arguing.
 
 
 
